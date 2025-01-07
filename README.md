@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on how to learn
 - 📫 How to reach me Kristy.Hartman@my.strayer.edu
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love crocheting and spending time with my family, kids, and grandkids
+- ⚡ Fun fact: I love learning and spending time with my family, kids, and grandkids
 
 <!---
 KristyHartman/KristyHartman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
